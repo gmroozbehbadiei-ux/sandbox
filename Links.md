@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-12 19:10 IR
+- 🎬 [چطوری_بهWhite_Dns_وصل_بشیم؟How_to_connect_to_White_DNS_.mp4](https://github.com/gmroozbehbadiei-ux/sandbox/raw/main/dl/%DA%86%D8%B7%D9%88%D8%B1%DB%8C_%D8%A8%D9%87White_Dns_%D9%88%D8%B5%D9%84_%D8%A8%D8%B4%DB%8C%D9%85%D8%9FHow_to_connect_to_White_DNS_.mp4) `6.3MB`
+
+---
+
+
 ### 📅 2026-05-12 17:19 IR
 - 📱 [`com.netmod.syna.apks`](https://github.com/nscl5/sandbox/raw/main/apks/com.netmod.syna.apks) - **23.4MB**
 
