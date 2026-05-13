@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-13 17:45 IR
+- 🎬 [Devil_May_Cry_(TV_Series)_Season_1_Recap___Everything_You_Should_Know_Before_Season_2_Explored.mp4](https://github.com/gmroozbehbadiei-ux/sandbox/raw/main/dl/Devil_May_Cry_%28TV_Series%29_Season_1_Recap___Everything_You_Should_Know_Before_Season_2_Explored.mp4) `67.5MB`
+
+---
+
+
 ### 📅 2026-05-13 15:12 IR
 - 🎬 [SPIDER-MAN__BRAND_NEW_DAY_–_Official_Trailer_(HD).mp4](https://github.com/gmroozbehbadiei-ux/sandbox/raw/main/dl/SPIDER-MAN__BRAND_NEW_DAY_%E2%80%93_Official_Trailer_%28HD%29.mp4) `12.9MB`
 
